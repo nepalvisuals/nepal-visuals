@@ -78,7 +78,7 @@ Got a trek story, updated itinerary, or insider tip? Open a pull request and sha
 ## Stay Connected
 
 Follow us for trail updates, trekking stories, and Himalayan inspiration:  
-📸 Instagram: `@nepalvisuals`  
+📸 Instagram: [nepalvisuals](https://www.instagram.com/nepalvisuals/)
 🌐 Website: [www.nepalvisuals.com](https://nepalvisuals.com/) 
 📩 Email: info@nepalvisuals.com
 

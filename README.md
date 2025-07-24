@@ -46,7 +46,7 @@ If you're looking for a shorter trek with a serious payoff, ABC checks all the b
 
 Mornings here are crisp, the silence is thick, and the views hit you right in the gut.
 
-### Langtang Valley Trek
+### [Langtang Valley Trek](https://nepalvisuals.com/tour/langtang-valley-trek-10-days/)
 **Difficulty:** Easy to Moderate  
 **Highest Point:** Kyanjin Ri (4,773m)  
 **Duration:** 7–10 days  

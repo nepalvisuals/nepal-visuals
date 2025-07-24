@@ -26,7 +26,7 @@ Off the beaten path but climbing fast in popularity, this one’s for trekkers w
 
 Strict permits keep crowds away, and the scenery? Just as epic as Annapurna or Everest—without the noise.
 
-### Annapurna Circuit Trek
+### [Annapurna Circuit Trek](https://nepalvisuals.com/tour/annapurna-circuit-trek-14-days/)
 **Difficulty:** Moderate to Challenging  
 **Highest Point:** Thorong La Pass (5,416m)  
 **Duration:** 12–20 days  

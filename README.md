@@ -82,7 +82,7 @@ Follow us for trail updates, trekking stories, and Himalayan inspiration:
 🌐 Website: [www.nepalvisuals.com](https://nepalvisuals.com/) 
 📩 Email: info@nepalvisuals.com
 
-**Trekking in Nepal isn’t just a trip. It’s a threshold—a place where you leave behind the familiar and step into something that changes you.**
+**Trekking in Nepal isn’t just a trip. It’s a threshold - a place where you leave behind the familiar and step into something that changes you.**
 
 Let the mountains call.  
 Let your boots answer.

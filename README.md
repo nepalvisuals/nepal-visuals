@@ -36,7 +36,7 @@ An old favorite with good reason. You’ll trek from rice paddies to alpine dese
 
 This one is like a mixtape of everything the Himalayas have to offer.
 
-### Annapurna Base Camp (ABC) Trek
+### [Annapurna Base Camp (ABC) Trek](https://nepalvisuals.com/tour/annapurna-base-camp-trek-13-days/)
 **Difficulty:** Moderate  
 **Highest Point:** Annapurna Base Camp (4,130m)  
 **Duration:** 7–11 days  

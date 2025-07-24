@@ -8,7 +8,7 @@ This repository is your guide to the most iconic and soul-stirring treks Nepal h
 
 ## ✨ Featured Treks
 
-### Everest Base Camp (EBC) Trek(https://nepalvisuals.com/tour/everest-base-camp-trek/)
+### Everest Base Camp (EBC) Trek (https://nepalvisuals.com/tour/everest-base-camp-trek/)
 **Difficulty:** Moderate to Challenging  
 **Highest Point:** Kala Patthar (5,545m)  
 **Duration:** 12–14 days  
@@ -79,7 +79,7 @@ Got a trek story, updated itinerary, or insider tip? Open a pull request and sha
 
 Follow us for trail updates, trekking stories, and Himalayan inspiration:  
 📸 Instagram: `@nepalvisuals`  
-🌐 Website: www.nepalvisuals.com(https://nepalvisuals.com/) 
+🌐 Website: www.nepalvisuals.com (https://nepalvisuals.com/) 
 📩 Email: info@nepalvisuals.com
 
 **Trekking in Nepal isn’t just a trip. It’s a threshold—a place where you leave behind the familiar and step into something that changes you.**

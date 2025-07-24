@@ -2,7 +2,7 @@
 
 Nepal isn’t just a destination, it’s a feeling. Tucked between Tibet and India, this small Himalayan country packs more adventure, beauty, and soul than most places ten times its size. And if you're the kind of traveler who finds meaning in mountain paths and moments away from the noise, trekking here just makes sense.
 
-Whether you dream of standing beneath Everest, circling hidden giants, or wandering through rhododendron forests dotted with yak herders, Nepal has a trail that fits.
+Whether you dream of standing beneath [Everest](https://nepalvisuals.com/mount-everest-sagarmatha-mountain/), circling hidden giants, or wandering through rhododendron forests dotted with yak herders, Nepal has a trail that fits.
 
 This repository is your guide to the most iconic and soul-stirring treks Nepal has to offer.
 

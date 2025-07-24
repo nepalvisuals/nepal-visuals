@@ -16,7 +16,7 @@ This repository is your guide to the most iconic and soul-stirring treks Nepal h
 
 This is the classic. The one that pulls thousands each year into the heart of the Khumbu region. You’ll fly into Lukla, pass through Sherpa villages, visit ancient monasteries, and—if the skies play nice—wake up to sunrise over Everest. It’s not just about the mountain. It’s the people, the camaraderie, and the surreal sense of being somewhere that once only existed in books and dreams.
 
-### Manaslu Circuit Trek
+### [Manaslu Circuit Trek](https://nepalvisuals.com/tour/manaslu-circuit-trek-13-days/)
 **Difficulty:** Challenging  
 **Highest Point:** Larkya La Pass (5,167m)  
 **Duration:** 14–18 days  

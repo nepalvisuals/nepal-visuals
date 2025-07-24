@@ -14,7 +14,7 @@ This repository is your guide to the most iconic and soul-stirring treks Nepal h
 **Duration:** 12–14 days  
 **Best Time:** March–May & Oct–Nov
 
-This is the classic. The one that pulls thousands each year into the heart of the [Khumbu region](https://nepalvisuals.com/everest-region-khumbu-region/). You’ll fly into Lukla, pass through Sherpa villages, visit ancient monasteries, and if the skies play nice - wake up to sunrise over Everest. It’s not just about the mountain. It’s the people, the camaraderie, and the surreal sense of being somewhere that once only existed in books and dreams.
+This is the classic. The one that pulls thousands each year into the heart of the [Khumbu region](https://nepalvisuals.com/everest-region-khumbu-region/). You’ll fly into [Lukla](https://nepalvisuals.com/lukla/), pass through Sherpa villages, visit ancient monasteries, and if the skies play nice - wake up to sunrise over Everest. It’s not just about the mountain. It’s the people, the camaraderie, and the surreal sense of being somewhere that once only existed in books and dreams.
 
 ### [Manaslu Circuit Trek](https://nepalvisuals.com/tour/manaslu-circuit-trek-13-days/)
 **Difficulty:** Challenging  

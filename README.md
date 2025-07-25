@@ -68,8 +68,6 @@ Underrated and deeply beautiful, Langtang lies just north of Kathmandu, but feel
 - [ ] Permits and how to get them  
 - [ ] Fitness prep guides  
 - [ ] Altitude & acclimatization tips  
-- [ ] Local trekking agencies and guides list
-
 
 ## Contribute
 
